@@ -5,3 +5,7 @@ Artia bilibili空间:https://space.bilibili.com/511613155/dynamic
 
 
 程序作者bilibili空间：https://space.bilibili.com/37977570
+
+完整打包程序：
+链接：https://pan.baidu.com/s/1uIhzSvYG91FmIsxBtadA-A 
+提取码：moyg
